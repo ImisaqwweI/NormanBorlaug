@@ -1,2 +1,0 @@
-# NormanBorlaug
-Information
